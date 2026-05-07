@@ -1,4 +1,4 @@
-
+Experience pull lucky blocks like never before with no-ban pull lucky blocks Script, the #1 Script. Includes one-hit kill and no clip for unbeatable
 
 
 
